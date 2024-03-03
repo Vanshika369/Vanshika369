@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **vanshikapandey.work@gmail.com**
 
-- 📄 Know about my experiences [[http://bit.ly/ashwinSingh-resume](https://bit.ly/vanshika-resume)]
+- 📄 Know about my experiences [[http://bit.ly/vanshika-resume](https://bit.ly/vanshika-resume)]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
